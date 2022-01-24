@@ -5,17 +5,11 @@
 #### 1. Find a mortgage broker who understands you
 
   Here is a good mortgage broker who will understand you and can communicate from start to finish over email. Phone calls optional.
+  
+  <snip> They are gone, find someone else </snip>
 
-  ```
-  Andy Jeffreys
-  Mortgage Consultant
-  My Financial Services, 1st Floor, Radius House, 51 Clarendon Road, Watford, Herts, WD17 1HP.
-  Tel: 01923 634 441  Fax: 0844 811 2994
 
-  andy@myfinancialservices.co.uk
-  ```
-
-#### 2. Send him an email introducing yourself. You will soon be asked to provide the following information, so best you collect it before starting this whole affair.
+#### 2. Send them an email introducing yourself. You will soon be asked to provide the following information, so best you collect it before starting this whole affair.
 
   ##### Details for both applicants;
 
