@@ -3,10 +3,8 @@
 ## as a contractor in the UK
 
 #### 1. Find a mortgage broker who understands you
-
-  Here is a good mortgage broker who will understand you and can communicate from start to finish over email. Phone calls optional.
   
-  <snip> They are gone, find someone else </snip>
+  Update: Recommended brokers are gone, find someone else.
 
 
 #### 2. Send them an email introducing yourself. You will soon be asked to provide the following information, so best you collect it before starting this whole affair.
