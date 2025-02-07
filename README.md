@@ -6,13 +6,16 @@
   
   Here is a good mortgage broker who will understand you and can communicate from start to finish over email. Phone calls optional.
 
-  ```
   Andy Jeffreys
+
   Mortgage Consultant
+  
   My Financial Services, 1st Floor, Oak House, Reeds Crescent, Watford, Herts, WD24 4QP.
+  
   Direct Tel: 0204 551 5657
 
   andy@myfinancialservices.co.uk
+  
 
 #### 2. Send them an email introducing yourself. You will soon be asked to provide the following information, so best you collect it before starting this whole affair.
 
